@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered Trading Bot for grid trading bot for futures | backtesting & order-book-analysis, the #1 grid trading bot for futures. Includes backtesting
 
 
 
